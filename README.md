@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PulinTaye
+- 🔩 IITM 3rd year UG Mechanical.
+- 🌱 I’m currently learning fullstack
+- 📫 my mail: pulintaye8099@gmail.com 
+- ⚡ Fun fact:  I've got a secret love affair with biscuits and water. It's a match made in heaven.
